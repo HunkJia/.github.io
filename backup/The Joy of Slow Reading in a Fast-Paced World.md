@@ -1,0 +1,6 @@
+In an era of quick scrolling and binge-consuming, slowing down to really read feels rebellious. Not skimming for takeaways, but savoring words, letting them settle, and engaging deeply with ideas.​
+My slow reading journey began when I realized I’d finish books yet recall little—racing to the end like checking a box, only to feel empty. So I grabbed a physical novel, set a 30-minute timer, and vowed to pause.​
+The shift was striking. I noticed details: sunlight through windows, subtle humor, quiet foreshadowing—like switching from standard definition to 4K.​
+Slow reading enriches more than literary enjoyment; it rekindles active thinking. You pause to ponder, look up words, or jot thoughts, turning reading from passive to participatory.​
+It’s not easy amid pressure to “keep up,” but I see it as self-care—a way to carve calm in chaos, to honor what’s worth savoring.​
+If digital burnout weighs on you, try it: one page, no distractions. Let words linger. In a world chasing speed, slow reading is a small, powerful act of presence—something we all need more of.
